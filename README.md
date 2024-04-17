@@ -3,7 +3,7 @@ Why are you staring at me buddy
 45 64 92 85 
 ---------------
 N1AmaF5hWj1nTnFyPnArOEY/O1ddPTRPLmNvK21dQV03MlJvZUxcOVZ3dU0nUw==
-
+Sorry for the mess on github. these are my important stuff so none of your business
 I have no enough time to spe-
 
 58 45 32 85 
